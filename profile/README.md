@@ -9,6 +9,5 @@ If you would like to Playtest the mod, fill out this [Google Form](https://docs.
 
 ### DONATIONS ARE WELCOME!!!
 (And required if you want the game on Steam)
-[Piggybackr](https://www.piggybackr.com/users/dk865/fundraisers/portal-cascade/public
-ading)
+[Piggybackr](https://www.piggybackr.com/users/dk865/fundraisers/portal-cascade/public)
 
